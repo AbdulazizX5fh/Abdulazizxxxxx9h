@@ -1,2 +1,2 @@
-# Abdulazizxxxxx9h
+# Discord Broadcasting Bot
 vghffghfytftfytft fghjfyuj uyfyu jg
